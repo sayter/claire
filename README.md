@@ -10,6 +10,8 @@ speed up or slow down?  both seem so nice
 
 Praise the sun!
 
+I think it's malleable thru time it can change upon what u prefer on a given day
+
 💖💖💖 💖💀💖💀 💖💖💀💀 💖💖 💖💖💀
 
 <3 <3 <3 <3 <3 <3 <3 <3
